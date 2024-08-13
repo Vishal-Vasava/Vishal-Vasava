@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on GenAI
 - 📫 Send me GitHum messages
 - 😄 Pronouns:he/him
-- ⚡ Fun fact: Creating something new is essence of life. 
+- ⚡ Fun fact: "Create Or Disintegrate. You’re Either Growing Or Dying." :)  
 
 <!---
 Vishal-Vasava/Vishal-Vasava is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
